@@ -6,6 +6,6 @@ I am a person who works hard to achieve my goals.
 * listening to music :exclamation:
 * Watching movies :tv:
 * reading books :blue_book:
-* fahbshgasu8ak
+* swimming
 ## Education
-> This is my personal
+no education till now 
